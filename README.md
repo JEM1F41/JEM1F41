@@ -6,6 +6,6 @@
 MEU NOME: NICOLLE 
 ESTOU ESTUDANDO NA ALURA 
 ESTOU ME DESENVOLVENDO NA LINGUAGEM GITHUB 
-![](https://github.com/user-attachments/assets/6b7daca4-bcef-4532-a430-1a478ecb1018)
+![](https://media1.tenor.com/m/aKFaZBrZFYcAAAAC/excited-spin.gif)
 
 
