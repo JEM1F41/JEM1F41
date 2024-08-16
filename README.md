@@ -9,3 +9,19 @@ ESTOU ME DESENVOLVENDO NA LINGUAGEM GITHUB
 ![](https://media1.tenor.com/m/aKFaZBrZFYcAAAAC/excited-spin.gif)
 
 
+![](![]![image](https://media1.tenor.com/m/sd3RjFavlnkAAAAC/joker.gif))
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
